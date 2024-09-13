@@ -1,5 +1,4 @@
-# Xworm-6.0
-Xworm 6.0 cracked by Unknownhat127001 🔥
+# Xworm 6.0 cracked by Unknownhat127001 🔥
 
 <div class="center" align="center"><center><img src="https://i.postimg.cc/G3Svwh9W/Myd2m6J.png" width="1000" alt=""/></center></div>
 
