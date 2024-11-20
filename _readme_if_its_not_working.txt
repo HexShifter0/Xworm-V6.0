@@ -1,0 +1,1 @@
+If it doesn't start you will need to download Microsoft Visual C++ 2015-2022 Redistributable and .NET V8.0
